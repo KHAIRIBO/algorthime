@@ -1,3 +1,3 @@
 # algorthime
 bac info exercice and project
-fih le project li 5dmthom 3amt il bac nchalh tnf3kom<)
+fih le project li 5dmthom 3amt il bac :)
